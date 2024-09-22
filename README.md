@@ -1,0 +1,1 @@
+# MAGR-Global-News
